@@ -2,4 +2,4 @@
 
 Hi Dear !
 
-Dear here, I had just started to learn how to improve my skills at coding, and cannot tell you enough about hiw interesting it is.
+Dear here, I just started learning to improve my skills at coding, and cannot tell you enough about how interesting it is.
